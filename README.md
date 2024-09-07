@@ -1,0 +1,1 @@
+Yogurt is a food produced by bacterial fermentation of milk. Fermentation of sugars in the milk by these bacteria produces lactic acid, which acts on milk protein to give yogurt its texture and characteristic tart flavor. In this website, I have a list of different kinds of yougart and how to get them from seller's adress.
